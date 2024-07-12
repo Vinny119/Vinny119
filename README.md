@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Susa
+- 👀 I’m interested in manhwas, manhuas, mangas and novels bl
+- 🌱 I’m currently learning chinese and drawing
+- 💞️ I’m a very shy person
+- 📫 I will not respond to anything
+- 😄 Pronouns: She/her
+- ⚡ Fun fact: I'm chinese living in Spain
